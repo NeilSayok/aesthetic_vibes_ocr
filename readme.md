@@ -1,16 +1,16 @@
-## Ok Till: 1
+## Ok Till: 10
 |Serial No.|Text|Image|File Name
 |:----------:|:----------------------:|:-------------------:|:-------------------:|
 |1|<p>It's very difficult to stop<br>Tears rolling down the Eyes<br>because of a Broken Heart,<br>and convince the Mind that<br>we are Strong.<br><br></p>|<img src="aesthetic_o_vibes\1.jpg" width="50%" height="auto">|1.jpg
-|2|<p>Relationship doesn t mean<br>you re in love.<br><br>Love means Respecting<br>each others decision,<br>Reassurance, Happiness,<br>Trust and most importantly<br><br>Loyalty.<br><br></p>|<img src="aesthetic_o_vibes\2.jpg" width="50%" height="auto">|2.jpg
+|2|<p>Relationship doesn t mean<br>you re in love.<br>Love means Respecting<br>each others decision,<br>Reassurance, Happiness,<br>Trust and most importantly<br>Loyalty.<br><br></p>|<img src="aesthetic_o_vibes\2.jpg" width="50%" height="auto">|2.jpg
 |3|<p>I loved you so much that<br>even when you hurt me,<br>I tried to Understand you.<br><br></p>|<img src="aesthetic_o_vibes\3.jpg" width="50%" height="auto">|3.jpg
-|4|<p>In life things happen.<br><br>You may not want them to,<br>but they do. You just gotta do<br>your best and move on<br><br><br></p>|<img src="aesthetic_o_vibes\4.jpg" width="50%" height="auto">|4.jpg
-|5|<p>You cried in private<br>a lot of times.<br>S$o,God is going to<br>bless you in public.<br>Wait for it.<br><br>AMES T4PETIC VercEs<br></p>|<img src="aesthetic_o_vibes\5.jpg" width="50%" height="auto">|5.jpg
-|6|<p>Depression has no face.<br>Please be kind to even<br>a<br>*RIP SushantSinghRajput<br><br></p>|<img src="aesthetic_o_vibes\6.jpg" width="50%" height="auto">|6.jpg
-|7|<p>To the world you are<br>just a Father<br>but, to our family you<br>are the world.<br><br></p>|<img src="aesthetic_o_vibes\7.jpg" width="50%" height="auto">|7.jpg
-|8|<p>Breaking Up<br>in a relationship happens<br>when a Person starts to<br>pay more attention to<br>what they think they are<br>missing instead of what<br>they already have.<br><br></p>|<img src="aesthetic_o_vibes\8.jpg" width="50%" height="auto">|8.jpg
-|9|<p>The way I begged you to stay,<br>I wish no one has to ever do<br>that to anyone.<br><br></p>|<img src="aesthetic_o_vibes\9.jpg" width="50%" height="auto">|9.jpg
-|10|<p>Being with No-one is<br>better than being with the<br>Wrong one.<br>Because, those who fly<br>alone always have the<br>strongest wings.<br><br></p>|<img src="aesthetic_o_vibes\10.jpg" width="50%" height="auto">|10.jpg
+|4|<p>In life things happen.<br>You may not want them to,<br>but they do. You just gotta do<br>your best and move on<br><br><br></p>|<img src="aesthetic_o_vibes\4.jpg" width="50%" height="auto">|4.jpg
+|5|<p>You cried in private<br>a lot of times.<br>So,God is going to<br>bless you in public.<br>Wait for it.</p>|<img src="aesthetic_o_vibes\5.jpg" width="50%" height="auto">|5.jpg
+|6|<p>Depression has no face.<br>Please be kind to even<br>the smiling faces.</p>|<img src="aesthetic_o_vibes\6.jpg" width="50%" height="auto">|6.jpg
+|7|<p>To the world you are<br>just a Father<br><br>but, to our family you<br>are the world.<br><br></p>|<img src="aesthetic_o_vibes\7.jpg" width="50%" height="auto">|7.jpg
+|8|<p>Breaking Up<br><br>In a relationship happens<br>when a Person starts to<br>pay more attention to<br>what they think they are<br>missing instead of what<br>they already have.<br><br></p>|<img src="aesthetic_o_vibes\8.jpg" width="50%" height="auto">|8.jpg
+|9|<p>The way I begged you to stay,<br>I wish no one has to ever done<br>that to anyone.<br><br></p>|<img src="aesthetic_o_vibes\9.jpg" width="50%" height="auto">|9.jpg
+|10|<p>Being with No-one is<br><br>better than being with the<br>Wrong one.<br>Because, those who fly<br>alone always have the<br>strongest wings.<br><br></p>|<img src="aesthetic_o_vibes\10.jpg" width="50%" height="auto">|10.jpg
 |11|<p>Love should be “Formed:<br>not “Forced.<br><br>There is just a<br>difference of M and C.<br>Because love should be<br><br>‘Mutual’ not Casual.<br><br></p>|<img src="aesthetic_o_vibes\11.jpg" width="50%" height="auto">|11.jpg
 |12|<p>I am a strong person but<br><br>once in a while I become<br>weak too and cry.<br><br>At that point I need someone<br><br>to hug me and tell<br><br>‘Everything s going to be<br><br>alright I am with you<br><br></p>|<img src="aesthetic_o_vibes\12.jpg" width="50%" height="auto">|12.jpg
 |13|<p>Dont care for those who are<br>ignoring you.<br>Care for those who are ignoring<br>others for you.<br><br></p>|<img src="aesthetic_o_vibes\13.jpg" width="50%" height="auto">|13.jpg
