@@ -243,7 +243,7 @@
 |240|<p>Some nights we feel more<br>lonelier than other nights.<br><br></p>|<img src="aesthetic_o_vibes\240.jpg" width="50%" height="auto">|240.jpg
 |241|<p>I am just tired of this fake<br>world of social media where<br>everyone is pretending to<br>be someone that they are<br>not in real life.<br><br></p>|<img src="aesthetic_o_vibes\241.jpg" width="50%" height="auto">|241.jpg
 |242|<p>Not everyone is lucky enough<br>to get peace at home.<br><br></p>|<img src="aesthetic_o_vibes\242.jpg" width="50%" height="auto">|242.jpg
-|243|<p>AESTHETIC WiBES<br></p>|<img src="aesthetic_o_vibes\243.jpg" width="50%" height="auto">|243.jpg
+
 |244|<p>You are ruining your life<br>thinking about someone<br>who gave you nething<br>except pain.<br><br></p>|<img src="aesthetic_o_vibes\244.jpg" width="50%" height="auto">|244.jpg
 |245|<p>Sometimes to share your<br>own problem is just an<br>another problem.<br><br></p>|<img src="aesthetic_o_vibes\245.jpg" width="50%" height="auto">|245.jpg
 |246|<p>Hold me like the night holds<br>the moon.<br>Secure me in your arms like<br>a mother secure a newborn.<br><br></p>|<img src="aesthetic_o_vibes\246.jpg" width="50%" height="auto">|246.jpg
@@ -271,55 +271,39 @@
 |268|<p>Care for yourself first.<br>Everything will fall into place.<br><br></p>|<img src="aesthetic_o_vibes\268.jpg" width="50%" height="auto">|268.jpg
 |269|<p>You will not grow unless<br>you explore alone.<br><br></p>|<img src="aesthetic_o_vibes\269.jpg" width="50%" height="auto">|269.jpg
 |270|<p>We are judging it wrong from<br>the beginning.<br>Ugliness is in the hearts of<br>people not in the face.<br><br><br></p>|<img src="aesthetic_o_vibes\270.jpg" width="50%" height="auto">|270.jpg
-|271|<p>You arean<br>a ee rey Core cone a . Ce I<br>: ° e<br>"I I eee<br>- ye hae ‘I<br>a ae<br>. , py<br></p>|<img src="aesthetic_o_vibes\271.jpg" width="50%" height="auto">|271.jpg
-|272|<p>=.<br>What do you like the most?<br></p>|<img src="aesthetic_o_vibes\272.jpg" width="50%" height="auto">|272.jpg
+
+
 |273|<p>Sometimes life doesnt goes<br>according to our plans.<br>But always remember,<br>Everything happens for a<br>reason.<br><br></p>|<img src="aesthetic_o_vibes\273.jpg" width="50%" height="auto">|273.jpg
-|274|<p>- Do you prefer being alone?<br>(<br>as .<br>"i. , 1<br></p>|<img src="aesthetic_o_vibes\274.jpg" width="50%" height="auto">|274.jpg
-|275|<p>Do you love travelling? .<br>] \ I<br>_. -<br></p>|<img src="aesthetic_o_vibes\275.jpg" width="50%" height="auto">|275.jpg
+
 |276|<p>Only a mother can see your<br>pain behind your fake smile.<br><br></p>|<img src="aesthetic_o_vibes\276.jpg" width="50%" height="auto">|276.jpg
 |277|<p>Life tip:Dont be so available to<br>everyone.<br>They will take you for granted.<br><br></p>|<img src="aesthetic_o_vibes\277.jpg" width="50%" height="auto">|277.jpg
 |278|<p>I can delete your number<br><br>but how can I erase your<br><br>memories from my mind?<br><br></p>|<img src="aesthetic_o_vibes\278.jpg" width="50%" height="auto">|278.jpg
-|279|<p>I —<br>7 ><br><br>___Do you have fear of heights?<br>‘ ‘ I 4<br><br>lla A<br><br>(x<br><br>1 q ae s \ a iN r<br></p>|<img src="aesthetic_o_vibes\279.jpg" width="50%" height="auto">|279.jpg
-|280|<p>Are you a midnight<br>thinker?<br>Bt<br></p>|<img src="aesthetic_o_vibes\280.jpg" width="50%" height="auto">|280.jpg
-|281|<p>Do you believe in Karma?<br></p>|<img src="aesthetic_o_vibes\281.jpg" width="50%" height="auto">|281.jpg
-|282|<p>ul<br>i}<br></p>|<img src="aesthetic_o_vibes\282.jpg" width="50%" height="auto">|282.jpg
+
 |283|<p>A good heart is more attractive<br>than a beautiful face.<br><br></p>|<img src="aesthetic_o_vibes\283.jpg" width="50%" height="auto">|283.jpg
 |284|<p>Stop apologising for the<br>mistake which you have<br>not done,just to make<br>them stay.<br><br></p>|<img src="aesthetic_o_vibes\284.jpg" width="50%" height="auto">|284.jpg
 |285|<p>Dont break your rules for<br>someone who isnt sure<br>about you.<br><br></p>|<img src="aesthetic_o_vibes\285.jpg" width="50%" height="auto">|285.jpg
-|286|<p>a<br>.<br>ae. ae<br>a fo sy Deer .<br>¥ a ot * ae<br>a. a<br>— ~—ieath . ra<br>ie)<br>- M 0 I ——<br>) I LE Petts<br>a) eS<br>a<br>+ rea src ie<br>Ps eee ee ee a ~~<br>7 ewig Ses Se ee<br>ey ae ieee eee ae 2 =<br>ee 2 ere<br>Ee aes SS — =<br>Bee ee a ><br>y SS Na<br>Be a eer Se _ ae<br>Pe a<br>eee ~ ae gig oe eae Se —.<br>ee eS SSS<br>ee —SSSs :<br>Po gee SS SRV RR SS<br>SSeS <> SSS<br>eo a SESS <=" sees:<br>po SRE SS<br>a aN SaaS<br>MS 2S a ee<br>“me ON SRA EAS<br>{Sar See<br>ances are eae .<br>ee i eee A .:<br>Sar Pes SRN<br>a iS ee ee<br>‘at a<br>a 2 ~“<br></p>|<img src="aesthetic_o_vibes\286.jpg" width="50%" height="auto">|286.jpg
-|287|<p>GLE TA<br></p>|<img src="aesthetic_o_vibes\287.jpg" width="50%" height="auto">|287.jpg
-|288|<p>Thank you guys*”<br>Keep supporting us*”<br><br>423 400 0<br>Posts Followers mee alare]<br><br><br><br>Writing Service<br><br>Lost soul finding combination of words\ ><br><br>Follow us to bless your feed with ?<br><br>FB:- (40k)<br><br>Our Facebook Page Link @<br><br>www. facebook.com/Aes ibes/<br><br>Following v Message v<br><br>_ in<br></p>|<img src="aesthetic_o_vibes\288.jpg" width="50%" height="auto">|288.jpg
+
 |289|<p>Having someone in your life<br>who always has your back is<br>indeed a blessing.<br><br><br></p>|<img src="aesthetic_o_vibes\289.jpg" width="50%" height="auto">|289.jpg
-|290|<p>Nes Ae<br>SOTA<br>< “ M “yt hy<br>uw I I I ‘i<br><br>kU<br><br>, ay 1 ck<br>Which i&more important Ito)<br>- you? as I!<br>career wove I ere<br>Ma a Narioanau: I M4 e<br>ig Pe Py.<br>re ee —<br>= 2 gh 3<br></p>|<img src="aesthetic_o_vibes\290.jpg" width="50%" height="auto">|290.jpg
+
 |291|<p>Dont complicate your life by<br>Just go with the flow,see where<br>it takes you.<br><br></p>|<img src="aesthetic_o_vibes\291.jpg" width="50%" height="auto">|291.jpg
-|292|<p>ae ae"<br>4, er: em sf<br>~ Meg ef i<br>oe Siti to. oF<br>te Maes Rey Cee oo. etic “4<br>ol \ ig ae<br><br>_— NO, SPEAK Meaies<br>f t a<br>all YES UP<br>* »'* Re Sen Jun a<br>yy , Al,<br></p>|<img src="aesthetic_o_vibes\292.jpg" width="50%" height="auto">|292.jpg
 |293|<p>Harsh truth of life is that on<br>your darkest days you wil find<br>yourself alone.<br><br></p>|<img src="aesthetic_o_vibes\293.jpg" width="50%" height="auto">|293.jpg
 |294|<p>Your parents are the only ones<br>who will always pray for you<br>no matter how badly you had<br>treated them.<br><br></p>|<img src="aesthetic_o_vibes\294.jpg" width="50%" height="auto">|294.jpg
 |295|<p>We are not afraid of new love.<br>We are afraid of getting hurt<br>again,<br><br><br></p>|<img src="aesthetic_o_vibes\295.jpg" width="50%" height="auto">|295.jpg
-|296|<p>"I I<br><br>ah I<br><br>Wy<br>—ta<br></p>|<img src="aesthetic_o_vibes\296.jpg" width="50%" height="auto">|296.jpg
-|297|<p>© 6 ‘ie<br>ail con ot °<br>fee @<br>Mie CH Ck<br></p>|<img src="aesthetic_o_vibes\297.jpg" width="50%" height="auto">|297.jpg
 |298|<p>Seeing your mom and dad<br><br>smiling because of you is a<br><br>different level of happiness.<br><br></p>|<img src="aesthetic_o_vibes\298.jpg" width="50%" height="auto">|298.jpg
 |299|<p>It's okay to cut people off from<br>your life if they gives you<br><br></p>|<img src="aesthetic_o_vibes\299.jpg" width="50%" height="auto">|299.jpg
-|300|<p>a yO “ae a Les Po ~ ad<br>F- aw 2. te, “4<br>Ay ST a eee se<br>Ss 5 Re Din ts Re 7 t =e =<br>, Eee, me (SE ts Sone<br>oe Bos o> a ee wg = wa’<br>-" - - tS va © eur s a ” y<br>we SS ORL Pi<br>eT Sak Per Sen<br>" a >, a S Sg, 2» ety > a<br>& oe ei a “u® <7 e<br>+ o~ yy iy, a ‘<br>4 « ys if “es =<br>ee .<br>. 4 , ‘<br>eee<br>oe a « SY ye ee:<br>” * wh.<br>Te Aa ~~ <oL Le ,<br>o".<br>ry . N<br>oe<br>ar<br>te “@ 4<br>a» get<br>. * 2 :<br>. » «<br>pow ¢ gi.<br>-* wp . ok<br>. . - . o <<br>\ 5 ~ ~ om<br>4 oo: .<br>«<br>® , PY<br>0 5 Ff & \ ‘p 4 it<br>: . v.<br>e - ‘ aN<br>3 « :<br>1 Y ><br>re ;<br>‘ Be .<br>L ~<br>; a . y<br>a \ . ‘qe ay<br></p>|<img src="aesthetic_o_vibes\300.jpg" width="50%" height="auto">|300.jpg
-|301|<p>What do you prefer the most?<br>a -<br></p>|<img src="aesthetic_o_vibes\301.jpg" width="50%" height="auto">|301.jpg
+
 |302|<p>It will take time but oneday<br>you will heal comepletely from<br>the pain are are going<br>through.<br><br><br></p>|<img src="aesthetic_o_vibes\302.jpg" width="50%" height="auto">|302.jpg
 |303|<p>And one day my heart will not<br>ache when I will hear your<br>name.<br><br><br></p>|<img src="aesthetic_o_vibes\303.jpg" width="50%" height="auto">|303.jpg
 |304|<p>I hope you find someone who<br>will make you believe in love<br>again.<br><br></p>|<img src="aesthetic_o_vibes\304.jpg" width="50%" height="auto">|304.jpg
 |305|<p>Confess your feelings today.<br>Dont hold it back with<br>yourself or you will regret<br>later.<br><br></p>|<img src="aesthetic_o_vibes\305.jpg" width="50%" height="auto">|305.jpg
-|306|<p>N<br>= es<br>~, L foes et<br>a?<br>a® a<br>\. Le : Lee<br>we neg th<br>, net 2<br>ee te ~<br>Pa ee ert .<br>2 4 ‘, a eam oT ,<br>ae wd allen? —<br>ae why 4" ero<br>(fhe 6 te TTT<br>wf fore :<br>ae You are<br>\<br>3 .<br>ta<br></p>|<img src="aesthetic_o_vibes\306.jpg" width="50%" height="auto">|306.jpg
-|307|<p>Li<br>PO ae RAR Maer 8 PN<br>a ae RS<br>crt<br>Do you love to travel alone?<br>a ee NX<br>a eg N&.-<br>‘ . te.<br>j : X Bn<br></p>|<img src="aesthetic_o_vibes\307.jpg" width="50%" height="auto">|307.jpg
+
 |308|<p>From,<br>Being Scared of darkness.<br>To,<br>Finding Peace in darkness.<br>We all grew up.<br><br></p>|<img src="aesthetic_o_vibes\308.jpg" width="50%" height="auto">|308.jpg
-|309|<p>ca<br>,<br>a af<br>I 7<br>S As . fo g<br>SN ee<br>on Ce an,<br>a 7 “a - ¥ ff<br>5 { as o I<br>ae. ‘ Woo. tg, Ell e I<br>" ‘po. aS _.;<br>tas I ed y<br>* nes: Y. e<br>: “hk I<br>a 4 (3 i + fz<br>q + af "4 ote okt ie<br>minnie 7 ¥ a -¥ om 4) ; =* -<br>. oF = a Te i<br>a Oe<br>ae: oe<br>a =<br>° , ‘te Nee - . “ - ~ .<br>, , ay. ee - a<br>i : ie eck .<br>Fe cata ee os “4<br>Ye aR Ee<br>a-wart ‘Pat, ’ +P.<br>= Per be<br>4 er ” a r. Lo<br>ie ie<br>Sa odes v<br></p>|<img src="aesthetic_o_vibes\309.jpg" width="50%" height="auto">|309.jpg
 |310|<p>Never forget the person who<br>stayed beside you even at<br>your worst.<br><br></p>|<img src="aesthetic_o_vibes\310.jpg" width="50%" height="auto">|310.jpg
-|311|<p>I<br>I<br>aaah ‘<br>i’<br>a<br>z Lad oi I 5<br>Phew PERE<br>oe fat j<br>TE<br>ae i<br>moos Ls<br>~~ -« wen.<br>I 7 aR oss “a /<br>joo FFF<br>* La<br>pm f<br>D you have a bestie®, I<br>a fy<br>a i . 3<br>> —_ 2 I<br>~ (i gf: i (<br>en ere ee<br>oan , 4 i = :<br>. ~~ ‘<br></p>|<img src="aesthetic_o_vibes\311.jpg" width="50%" height="auto">|311.jpg
 |312|<p>Theres a lat of things to say<br>but no one is there to listen.<br><br></p>|<img src="aesthetic_o_vibes\312.jpg" width="50%" height="auto">|312.jpg
-|313|<p>connection\to our realities?<br>a ) ’ " —<br></p>|<img src="aesthetic_o_vibes\313.jpg" width="50%" height="auto">|313.jpg
 |314|<p>Making someone smile is the<br>best thing you can do for<br>someone.<br><br></p>|<img src="aesthetic_o_vibes\314.jpg" width="50%" height="auto">|314.jpg
 |315|<p>I love the power of music.<br>It can touch our soul.<br><br></p>|<img src="aesthetic_o_vibes\315.jpg" width="50%" height="auto">|315.jpg
 |316|<p>Remember:<br><br>If someone wants to stay,they<br>will do everything to keep you.<br><br>And,<br>If they-wants to leave,they-will<br>leave you even if you are not<br><br>wrong.<br><br><br></p>|<img src="aesthetic_o_vibes\316.jpg" width="50%" height="auto">|316.jpg
-|317|<p>2 stihl Gy<br>I NOT<br>RUE FIN<br></p>|<img src="aesthetic_o_vibes\317.jpg" width="50%" height="auto">|317.jpg
 |318|<p>Falling in love is not a big<br>issue but staying together till<br>forever is what we crave for.<br><br><br></p>|<img src="aesthetic_o_vibes\318.jpg" width="50%" height="auto">|318.jpg
-|319|<p>“I ; -<br>a ah I<br>I !<br>~ a i * ; . .<br>Y , .<br>fies i)<br>I . 1 .<br>‘ : ‘ ots i}<br>: boy (@ - /<br>Ye ; / 4 Vi<br>/ 4 é f 4a<br>. 7 et<br>i i -"<br>A .<br>=<br>I ~ MW<br>1 ‘ . : /<br>‘ ee .<br>awe I<br>Do you beliéve insastrology?<br>y - -- yy ~I<br>a oN<br>PLE a Ae<br>Ss) ai ee<br>ig + —_ \<br>- # a nad t “ ;<br>78s eS aan os ;<br>oy bs Nr<br>oe , <a : ot LS<br>SS See<br></p>|<img src="aesthetic_o_vibes\319.jpg" width="50%" height="auto">|319.jpg
 |320|<p>LOVE is when nothing s<br>going good.<br>Everything is hurting you.<br>But, you still want the<br>same person over and<br>over again.<br><br><br></p>|<img src="aesthetic_o_vibes\320.jpg" width="50%" height="auto">|320.jpg
 |321|<p>Seeing your love with<br>someone else is the<br>most hardest thing.<br><br><br></p>|<img src="aesthetic_o_vibes\321.jpg" width="50%" height="auto">|321.jpg
 |322|<p>Death is not the greatest<br>loss in life.<br>Greatest loss is what dies<br>inside us when we live.<br><br></p>|<img src="aesthetic_o_vibes\322.jpg" width="50%" height="auto">|322.jpg
@@ -327,30 +311,21 @@
 |324|<p>The hardest thing<br>you ll learn is to heal<br>your mind first to heal<br><br>your heart.<br><br></p>|<img src="aesthetic_o_vibes\324.jpg" width="50%" height="auto">|324.jpg
 |325|<p>It's funny,right?<br>When you see disloyal ones<br>giving lectures on loyalty.<br><br></p>|<img src="aesthetic_o_vibes\325.jpg" width="50%" height="auto">|325.jpg
 |326|<p>It's painful when you sit<br>alone at night and think,<br>‘Why do people always leave<br>me even though my intension<br>was pure?<br><br></p>|<img src="aesthetic_o_vibes\326.jpg" width="50%" height="auto">|326.jpg
-|327|<p>What do you love the most?<br>C<br>CS,<br>V3<br>ry /<br></p>|<img src="aesthetic_o_vibes\327.jpg" width="50%" height="auto">|327.jpg
 |328|<p>I stopped texting you,not<br>because I dont love you anymore<br>but because my-presence in your<br>life doesn t matter to you<br>anymore.<br><br></p>|<img src="aesthetic_o_vibes\328.jpg" width="50%" height="auto">|328.jpg
 |329|<p>I hope you never fall in love<br>with someone who isnt made<br>for you.<br><br></p>|<img src="aesthetic_o_vibes\329.jpg" width="50%" height="auto">|329.jpg
 |330|<p>I know-you feel helpless at<br><br>tires but trust me everything<br><br>is going to be sort it out soon.<br><br></p>|<img src="aesthetic_o_vibes\330.jpg" width="50%" height="auto">|330.jpg
-|331|<p>; 4 N<br>ae Y i aa<br>pe i vy<br>PU has<br><br>A X% 4<br>—— I<br>( roy Sh.<br>? ; ee FRIENDS BACH<br>een aa<br>» an acne<br>wy a<br>Ce a<br>Oy .<br>Pe pe ~~<br></p>|<img src="aesthetic_o_vibes\331.jpg" width="50%" height="auto">|331.jpg
-|332|<p>Have you listened to music<br>today<br></p>|<img src="aesthetic_o_vibes\332.jpg" width="50%" height="auto">|332.jpg
-|333|<p>Where do you spend most of<br>your time on Instagram?<br></p>|<img src="aesthetic_o_vibes\333.jpg" width="50%" height="auto">|333.jpg
 |334|<p>If they-want to leave,<br>Let them go.<br>Someone better will surely<br>come to you.<br><br></p>|<img src="aesthetic_o_vibes\334.jpg" width="50%" height="auto">|334.jpg
 |335|<p>A Gentle Reminder:<br>Stalking their profile wont<br>make you feel good,instead it<br>will lead you to overthinking.<br><br><br></p>|<img src="aesthetic_o_vibes\335.jpg" width="50%" height="auto">|335.jpg
-|336|<p>~<, uM ,<br>. , x<br>~. Ane wo :<br>: . ay . ia ~ _<br>_ Are you still in love with your<br>-*- first love?<br>MESS<br>~ ~<br>ee<br>7 2s<br>vs ae 4 2 Om , no<br>of :<br>———<br></p>|<img src="aesthetic_o_vibes\336.jpg" width="50%" height="auto">|336.jpg
 |337|<p>Dont mistake my silence as a<br>sign of weakness.<br><br></p>|<img src="aesthetic_o_vibes\337.jpg" width="50%" height="auto">|337.jpg
 |338|<p>I hope you soon heal from<br>the pain which you are<br>dealing alone.<br><br></p>|<img src="aesthetic_o_vibes\338.jpg" width="50%" height="auto">|338.jpg
-|339|<p>we » of) 4 S e \ ny al A<br>- & were ste / f.<br>a wy, ad ‘ *t. o aa<br>ORG<br>SPEND YOUR<br>MONEY<br></p>|<img src="aesthetic_o_vibes\339.jpg" width="50%" height="auto">|339.jpg
 |340|<p>Maturity is when you respect<br>each other even though are<br>not together anymore.<br><br></p>|<img src="aesthetic_o_vibes\340.jpg" width="50%" height="auto">|340.jpg
 |341|<p>From,<br><br>‘I want to grow up soon.<br>To,<br><br>‘I wish I could go back to<br><br>my childhood once again .<br><br>We all realised that life was so<br>good back then.<br><br><br></p>|<img src="aesthetic_o_vibes\341.jpg" width="50%" height="auto">|341.jpg
-|342|<p>&<br>a<br>é<br>e “<br>ant on i I<br>mS INS FRIEN ‘e<br>7a h .<br>So — ; . yo b.!<br>a8 . ea ara. et<br>in i acenl eee<br>Spare ert ie eee = ee a 2<br>ae ox ~~<br>-. 4 e . 1 pe Ae : heey<br>. -, ‘ —e eae<br>- - . < * ie ie ® .<br>: ° . st oa - i ~ PREZ<br>ae ; a 4 ace .<br>ro . . OL %<br></p>|<img src="aesthetic_o_vibes\342.jpg" width="50%" height="auto">|342.jpg
-|343|<p>Would you rather<br>4<br>ie “e Ly<br></p>|<img src="aesthetic_o_vibes\343.jpg" width="50%" height="auto">|343.jpg
 |344|<p>Now I realised that you never<br>loved me,you just used me to<br>forget your past.<br><br></p>|<img src="aesthetic_o_vibes\344.jpg" width="50%" height="auto">|344.jpg
 |345|<p>Remember:<br>If they can leave you once then<br>they can leave you again.<br>So,don t let them come back.<br>You deserve a stable relationship.<br><br></p>|<img src="aesthetic_o_vibes\345.jpg" width="50%" height="auto">|345.jpg
 |346|<p>Find someone who can make<br>you smile even when you are<br>in chaos.<br><br></p>|<img src="aesthetic_o_vibes\346.jpg" width="50%" height="auto">|346.jpg
 |347|<p>How others see you isnt as<br>important as how-you see<br>yourself.<br>So love and accept the person<br>as yOu are.<br><br></p>|<img src="aesthetic_o_vibes\347.jpg" width="50%" height="auto">|347.jpg
 |348|<p>Find someone who will love<br>you even in those days when<br>you will have nothing to give<br>them in return.<br><br></p>|<img src="aesthetic_o_vibes\348.jpg" width="50%" height="auto">|348.jpg
 |349|<p>Appreciate someone s effort<br>when they are with you,<br>not when they are gone.<br><br></p>|<img src="aesthetic_o_vibes\349.jpg" width="50%" height="auto">|349.jpg
-|350|<p>c00D =©=——s-BAD<br>ta ara<br>We tre<br>i om<br>a<br></p>|<img src="aesthetic_o_vibes\350.jpg" width="50%" height="auto">|350.jpg
 |351|<p>Some days you dont feel like<br>It's okay to not to be okay all<br>the time.<br><br></p>|<img src="aesthetic_o_vibes\351.jpg" width="50%" height="auto">|351.jpg
 |352|<p>I can forgive you but I cant<br><br>never forget how-you left me<br><br>when I needed you the most.<br><br></p>|<img src="aesthetic_o_vibes\352.jpg" width="50%" height="auto">|352.jpg
 |353|<p>Sometimes we have a lot to say<br>but we choose to remain silent<br>because they dont care to<br>understand our feelings.<br><br><br></p>|<img src="aesthetic_o_vibes\353.jpg" width="50%" height="auto">|353.jpg
@@ -439,7 +414,6 @@
 |436|<p>When she keeps her hand in<br>his shoulder for the first time<br>while riding the bike, that's a<br>completely different feeling.<br><br></p>|<img src="aesthetic_o_vibes\436.jpg" width="50%" height="auto">|436.jpg
 |437|<p>There's a difference between<br>Somebody who would do anything<br>to make things work with you and<br><br>wants to build a life with you.<br><br>And,<br>Somebody who just wants you in<br>their free time.<br>Know the difference.<br><br></p>|<img src="aesthetic_o_vibes\437.jpg" width="50%" height="auto">|437.jpg
 |438|<p>The best moments of our life<br>can not be captured in<br>pictures.<br>But, They are captured in our<br>hearts forever.<br><br></p>|<img src="aesthetic_o_vibes\438.jpg" width="50%" height="auto">|438.jpg
-|439|<p>YA. alanwalkermusic<br>6 :<br>of ,y<br>‘os og<br>Sounds amazing *<br>Thanks a lott<br>@alanwalkermusic © G @<br></p>|<img src="aesthetic_o_vibes\439.jpg" width="50%" height="auto">|439.jpg
 |440|<p>A relationship is about<br>accepting each other's flaws<br>and insecurities because<br>nobody's perfect.<br>Its about seeing an imperfect<br>person perfectly.<br><br></p>|<img src="aesthetic_o_vibes\440.jpg" width="50%" height="auto">|440.jpg
 |441|<p>Someday,someone will lave<br>you just like the way you<br>deserve to be loved.<br><br></p>|<img src="aesthetic_o_vibes\441.jpg" width="50%" height="auto">|441.jpg
 |442|<p>Everyone leaves in the end.<br>Even those who had promised<br>that they-wont.<br><br></p>|<img src="aesthetic_o_vibes\442.jpg" width="50%" height="auto">|442.jpg
@@ -604,7 +578,6 @@
 |601|<p>All I want is someone who will<br>stay by my side forever.<br><br></p>|<img src="aesthetic_o_vibes\601.jpg" width="50%" height="auto">|601.jpg
 |602|<p>I am tired of relationships coz no<br>matter how much you try to make<br>for you just like that.<br><br></p>|<img src="aesthetic_o_vibes\602.jpg" width="50%" height="auto">|602.jpg
 |603|<p>Free yourself from one sided<br><br></p>|<img src="aesthetic_o_vibes\603.jpg" width="50%" height="auto">|603.jpg
-|604|<p>Are you or someone you know<br>is interested to be a part of<br>the page ?<br>esponsibility: 2 posts per<br>day.<br>DM US TO KNOW MORE.<br><br></p>|<img src="aesthetic_o_vibes\604.jpg" width="50%" height="auto">|604.jpg
 |605|<p>I am the most quietest person and<br>the most talkative too,it depends<br>on who I am with.<br><br></p>|<img src="aesthetic_o_vibes\605.jpg" width="50%" height="auto">|605.jpg
 |606|<p>Dont feel bad.<br>it's not your fault,sometimes<br>people need a reason to leave.<br><br></p>|<img src="aesthetic_o_vibes\606.jpg" width="50%" height="auto">|606.jpg
 |607|<p>Have you ever noticed that-when you<br>love someone truly,nobody else is<br>attractive to you in your eyes?<br><br></p>|<img src="aesthetic_o_vibes\607.jpg" width="50%" height="auto">|607.jpg
