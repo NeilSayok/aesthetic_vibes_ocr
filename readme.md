@@ -2,7 +2,7 @@
 |Serial No.|Text|Image|File Name
 |:----------:|:----------------------:|:-------------------:|:-------------------:|
 |1|<p>It's very difficult to stop<br>Tears rolling down the Eyes<br>because of a Broken Heart,<br>and convince the Mind that<br>we are Strong.<br><br></p>|<img src="aesthetic_o_vibes\1.jpg" width="50%" height="auto">|1.jpg
-|2|<p>Relationship doesn t mean<br>you re in love.<br>Love means Respecting<br>each others decision,<br>Reassurance, Happiness,<br>Trust and most importantly<br>Loyalty.<br><br></p>|<img src="aesthetic_o_vibes\2.jpg" width="50%" height="auto">|2.jpg
+|2|<p>Relationship doesn't mean<br>you re in love.<br>Love means Respecting<br>each others decision,<br>Reassurance, Happiness,<br>Trust and most importantly<br>Loyalty.<br><br></p>|<img src="aesthetic_o_vibes\2.jpg" width="50%" height="auto">|2.jpg
 |3|<p>I loved you so much that<br>even when you hurt me,<br>I tried to Understand you.<br><br></p>|<img src="aesthetic_o_vibes\3.jpg" width="50%" height="auto">|3.jpg
 |4|<p>In life things happen.<br>You may not want them to,<br>but they do. You just gotta do<br>your best and move on<br><br><br></p>|<img src="aesthetic_o_vibes\4.jpg" width="50%" height="auto">|4.jpg
 |5|<p>You cried in private<br>a lot of times.<br>So,God is going to<br>bless you in public.<br>Wait for it.</p>|<img src="aesthetic_o_vibes\5.jpg" width="50%" height="auto">|5.jpg
